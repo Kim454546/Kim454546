@@ -1,1 +1,1 @@
-# Hi, I'm Kim!
+# Hi there, I'm Kimberly 
